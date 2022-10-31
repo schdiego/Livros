@@ -1,6 +1,6 @@
 # PENSE MELHOR => Tim Hurson
 
-Livro muito bom. O problema que, como muito, tem muita enrolação até chegar no ponto principal. Gosto de coisas mais objetivas.
+Livro muito bom. O problema que, como muitos, tem muita enrolação até chegar no ponto principal. Gosto de coisas mais objetivas.
 
 ## RESUMO
 
